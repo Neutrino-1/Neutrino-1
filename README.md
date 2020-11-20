@@ -20,4 +20,4 @@
 * [Paypal](https://www.paypal.me/Neutrino1) 
 
 ## Work together?
-### [liknedIn](https://www.linkedin.com/in/srinivasan-m-421179179/) 
+* [liknedIn](https://www.linkedin.com/in/srinivasan-m-421179179/) 
